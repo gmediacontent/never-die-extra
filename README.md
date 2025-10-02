@@ -1,1 +1,4 @@
-# never-die-extra
+# Never Die Extra
+Dans le jeu à succès [Demon War 3], il y a des « figurants » qui meurent chaque jour de toutes sortes de façons. Mais bien qu’il ne contribue pas le moins du monde au jeu, un figurant nommé Evan D. Shelden a une scène de mort avec des images de synthèse exclusives qui ont volé l’amour de l’équipe de production ! Bon sang, n’est-ce pas le nom que j’ai reçu quand j’ai été réincarné dans ce jeu ? Moi, quelqu’un qui n’est pas le personnage principal et un figurant qui a trop de morts pour les compter, je dois survivre à tout prix !
+
+Dans le jeu Demon War 3, peuplé de créatures légendaires et d’un héros imbattable, il existe un figurant… qui n’arrête pas de mourir. Peu importent le scénario et l’évolution de la partie, le mage Evan D. Sherden ne fait qu’essuyer des morts plus tragiques les unes que les autres. Alors quand le gameur Ban-Min a besoin d’un nouveau challenge, il décide de tout faire pour le sauver. Mais ce défi personnel devient vite une question de vie ou de mort quand Ban-Min se réincarne dans le jeune Evan !
